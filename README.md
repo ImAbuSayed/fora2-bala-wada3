@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي خذني في هذا المساء
+> بين يديك يختفي كل العناء
+> في عيونك أرى نور السماء
+> قلبي ينادي لك بكل رجاء
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
